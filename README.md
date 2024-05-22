@@ -13,3 +13,4 @@ Meu nome é Kauê Berto
 @kaue_berto07
 
 ![](https://tenor.com/bmQDz.gif)
+https://tenor.com/bmQDz.gif
