@@ -12,5 +12,4 @@ Meu nome é Kauê Berto
 
 @kaue_berto07
 
-![](https://tenor.com/bmQDz.gif)
-https://tenor.com/bmQDz.gif
+![](https://media1.tenor.com/m/PKKCAakpBZIAAAAC/neyney-neymar.gif)
